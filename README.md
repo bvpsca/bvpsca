@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bvpsca
+- 👋 Hi, I’m Breeza Pascua.
 - 👀 I’m interested in learning new things, games, music, front end and back end, and codes.
 - 🌱 I’m currently learning to code - expanding my knowledge about codes.
 - 💞️ I’m looking to collaborate soon with my friends.
